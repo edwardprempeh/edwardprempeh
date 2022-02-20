@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @edwardprempeh
+- 👀 I’m interested in bionics and music
+- 🌱 I’m currently learning Software Development
+- 📫 Reach me at edwardprempeh20@gmail.com
